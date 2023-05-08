@@ -1,0 +1,2 @@
+# juki
+paciência
